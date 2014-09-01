@@ -27,3 +27,4 @@ So far, the following fine folks have received such birthday wishes:
 * [rhodesjason](http://happy-birthday.brianshumate.com/rhodesjason/)
 * [silasdraws](http://happy-birthday.brianshumate.com/silasdraws/)
 * [timplunkett](http://happy-birthday.brianshumate.com/timplunkett/)
+* [ZandiDandizette](http://happy-birthday.brianshumate.com/zandidandizette/)
