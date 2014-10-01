@@ -24,6 +24,7 @@ So far, the following fine folks have received such birthday wishes:
 * [ednapiranha](http://happy-birthday.brianshumate.com/ednapiranha/)
 * [hepkitten](http://happy-birthday.brianshumate.com/hepkitten/)
 * [justinascott](http://happy-birthday.brianshumate.com/justinascott/)
+* [lauradegroot](http://happy-birthday.brianshumate.com/lauradegroot/)
 * [mullenrodney](http://happy-birthday.brianshumate.com/mullenrodney/)
 * [renrutnnej](http://happy-birthday.brianshumate.com/renrutnnej/)
 * [rhodesjason](http://happy-birthday.brianshumate.com/rhodesjason/)
