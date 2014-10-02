@@ -20,6 +20,7 @@ tag to wish various peeps a Happy Birthday.
 So far, the following fine folks have received such birthday wishes:
 
 * [L0la_Adams](http://happy-birthday.brianshumate.com/L0la_Adams/)
+* [codetheory](http://happy-birthday.brianshumate.com/codetheory/)
 * [dark_roast_ruth](http://happy-birthday.brianshumate.com/dark_roast_ruth/)
 * [ednapiranha](http://happy-birthday.brianshumate.com/ednapiranha/)
 * [hepkitten](http://happy-birthday.brianshumate.com/hepkitten/)
