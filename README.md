@@ -35,6 +35,7 @@ So far, the following fine folks have received such birthday wishes:
 * [janl](http://happy-birthday.brianshumate.com/janl/)
 * [justinascott](http://happy-birthday.brianshumate.com/justinascott/)
 * [lauradegroot](http://happy-birthday.brianshumate.com/lauradegroot/)
+* [llkats](http://happy-birthday.brianshumate.com/llkats/)
 * [mullenrodney](http://happy-birthday.brianshumate.com/mullenrodney/)
 * [renrutnnej](http://happy-birthday.brianshumate.com/renrutnnej/)
 * [rhodesjason](http://happy-birthday.brianshumate.com/rhodesjason/)
