@@ -20,7 +20,7 @@ tag to wish various peeps a Happy Birthday.
 So far, the following fine folks have received such birthday wishes:
 
 * [stephnlake](http://happy-birthday.brianshumate.com/stephnlake/)
-* [L0la_Adams](http://happy-birthday.brianshumate.com/L0la_Adams/)
+* [annterese](http://happy-birthday.brianshumate.com/annterese/)
 * [bakedalaska](http://happy-birthday.brianshumate.com/bakedalaska/)
 * [boadepoju](http://happy-birthday.brianshumate.com/boadepoju/)
 * [coderoshi](http://happy-birthday.brianshumate.com/coderoshi/)
@@ -34,6 +34,7 @@ So far, the following fine folks have received such birthday wishes:
 * [hepkitten](http://happy-birthday.brianshumate.com/hepkitten/)
 * [janl](http://happy-birthday.brianshumate.com/janl/)
 * [justinascott](http://happy-birthday.brianshumate.com/justinascott/)
+* [L0la_Adams](http://happy-birthday.brianshumate.com/L0la_Adams/)
 * [lauradegroot](http://happy-birthday.brianshumate.com/lauradegroot/)
 * [llkats](http://happy-birthday.brianshumate.com/llkats/)
 * [mullenrodney](http://happy-birthday.brianshumate.com/mullenrodney/)
