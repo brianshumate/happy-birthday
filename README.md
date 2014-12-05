@@ -28,6 +28,7 @@ So far, the following fine folks have received such birthday wishes:
 * [dark_roast_ruth](http://happy-birthday.brianshumate.com/dark_roast_ruth/)
 * [dshaw](http://happy-birthday.brianshumate.com/dshaw/)
 * [ednapiranha](http://happy-birthday.brianshumate.com/ednapiranha/)
+* [fox](http://happy-birthday.brianshumate.com/fox/)
 * [fritzvd](http://happy-birthday.brianshumate.com/fritzvd/)
 * [gnumoon](http://happy-birthday.brianshumate.com/gnumoon/)
 * [gunfullofsun](http://happy-birthday.brianshumate.com/gunfullofsun/)
