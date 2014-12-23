@@ -23,6 +23,7 @@ So far, the following fine folks have received such birthday wishes:
 * [annterese](http://happy-birthday.brianshumate.com/annterese/)
 * [bakedalaska](http://happy-birthday.brianshumate.com/bakedalaska/)
 * [boadepoju](http://happy-birthday.brianshumate.com/boadepoju/)
+* [cmeik](http://happy-birthday.brianshumate.com/cmeik/)
 * [coderoshi](http://happy-birthday.brianshumate.com/coderoshi/)
 * [codetheory](http://happy-birthday.brianshumate.com/codetheory/)
 * [dark_roast_ruth](http://happy-birthday.brianshumate.com/dark_roast_ruth/)
