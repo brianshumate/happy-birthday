@@ -45,5 +45,6 @@ So far, the following fine folks have received such birthday wishes:
 * [renrutnnej](http://happy-birthday.brianshumate.com/renrutnnej/)
 * [rhodesjason](http://happy-birthday.brianshumate.com/rhodesjason/)
 * [silasdraws](http://happy-birthday.brianshumate.com/silasdraws/)
+* [SwartzCr](http://happy-birthday.brianshumate.com/SwartzCr/)
 * [timplunkett](http://happy-birthday.brianshumate.com/timplunkett/)
 * [ZandiDandizette](http://happy-birthday.brianshumate.com/zandidandizette/)
