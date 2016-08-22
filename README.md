@@ -21,6 +21,7 @@ So far, the following fine folks have received such birthday wishes:
 
 * [stephnlake](http://happy-birthday.brianshumate.com/stephnlake/)
 * [shakeitoutx3](http://happy-birthday.brianshumate.com/shakeitoutx3/)
+* [amandaglosson](http://happy-birthday.brianshumate.com/amandaglosson)
 * [andrewwk](http://happy-birthday.brianshumate.com/andrewwk/)
 * [annterese](http://happy-birthday.brianshumate.com/annterese/)
 * [bakedalaska](http://happy-birthday.brianshumate.com/bakedalaska/)
